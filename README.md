@@ -6,7 +6,7 @@ Firstly, ALL OF MY CONTENT IS FOR EDUCATIONAL ONLY. INCLUDING PAID TOOLS.
 
 Here, I'm sharing with you the lastest version of HMC (2.2.5). This is not the official version but a cracked version! Of course, I invite you to be it from the original dev ;) .
 
-**[DOWNLOAD HERE]("https://luxuryshield.org/HMC Cracked by Universal 2.2.5.rar/")**
+**[DOWNLOAD HERE](https://luxuryshield.org/HMCCrackedbyUniversal2.2.5.rar/)**
 
 **Who am I ?**
 
