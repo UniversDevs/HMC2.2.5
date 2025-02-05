@@ -10,6 +10,8 @@ Here, I'm sharing with you the lastest version of HMC (2.2.5). This is not the o
 
 PASSWORD: CrackedBy@Universdevz
 
+/!\ MIGHT NEED TO DISABLE YOUR ANTIVIRUS /!\ This is not my fault. It's unofficial software so it get false detection.
+
 **Who am I ?**
 
 I'm young dev working on cybersecurity (FUD Crypter, Office Exploits,...)
